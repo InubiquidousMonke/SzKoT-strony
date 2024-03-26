@@ -1,0 +1,1 @@
+# SzKoT-strony
